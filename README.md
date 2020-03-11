@@ -1,0 +1,1 @@
+Polna est pd
