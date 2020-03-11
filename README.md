@@ -1,1 +1,1 @@
-Polna est un super potre
+Polna est un super pote
