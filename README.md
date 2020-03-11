@@ -1,1 +1,1 @@
-Polna est pd
+Polna est un super potre
